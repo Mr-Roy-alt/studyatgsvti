@@ -1,2 +1,0 @@
-# studyatgsvti
-landing page
